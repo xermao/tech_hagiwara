@@ -1,2 +1,2 @@
 # sob_cheat
-![](https://www1.wi.to/2017/04/12/9ea8946921f1f072f42950535d3971fc.jpg)
+![](http://static.apple.nextmedia.com/images/e-paper/20150519/large/1432040423_332b.jpg)
